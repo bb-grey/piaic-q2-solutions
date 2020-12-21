@@ -1,0 +1,1 @@
+# PIAIC - AI - Q2 - Assignment and tasks solutions
